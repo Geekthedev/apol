@@ -20,9 +20,6 @@ Created to combat the noise of generic design groups, APOL is a *curated* hub wh
 - Build **real connections** (not just follower counts)  
 
 By screening members, we maintain a **spam-free, high-value** space—whether you're a freelancer, studio owner, or design student pushing boundaries.  
-
-*(Want to highlight a specific design field or add a call-to-action? Let me know!)*  
-
 ---  
 **Tagline Option:**  
 *"Where Design Meets Absolute Standards."*  
